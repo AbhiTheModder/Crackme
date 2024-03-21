@@ -16,8 +16,6 @@ My friend mahjood
 
 ### Thanks to him to give the challenge
 
-* ABHI: [Youtuber | Dev | Hacker(noob) | Reverse Engineer ](https://www.youtube.com/channel/AbhiTheModder)
-
  ## Support !
   Youtube:[ABHI - THE MØÐÐĒR](https://www.youtube.com/channel/AbhiTheModder)
 
